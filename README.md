@@ -41,7 +41,7 @@ ${\textsf{\color{#52B0C7} drug users, dark humor, anti tonetags }}$ <br>
 
 <p align="center">
   
-  　　　　　　　　　　　　　　　　　　　　[![Atabook](https://file.garden/alqc1dqplE9QfpOY/Untitled328_20260921023823.png)](https://tv-world.atabook.org/)　　　　　　[![Strawpage](https://file.garden/alqc1dqplE9QfpOY/Untitled327_20260921023848.png)](https://ribbon-gun.straw.page/)
+  　　　　　　　　　　　　　　　　　　[![Atabook](https://file.garden/alqc1dqplE9QfpOY/Untitled328_20260921023823.png)](https://tv-world.atabook.org/)　　　　　　[![Strawpage](https://file.garden/alqc1dqplE9QfpOY/Untitled327_20260921023848.png)](https://ribbon-gun.straw.page/)
 
 </p> 
 
