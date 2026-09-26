@@ -7,7 +7,7 @@
 </p> 
 
 <p align="center">
-${\textsf{\color{#52B0C7} peterㅤ/ㅤoliver }}$ <br>
+${\textsf{\color{#52B0C7} peterㅤ/ㅤoliverㅤ/ㅤdave }}$ <br>
 ${\textsf{\color{#52B0C7} 17ㅤㅤtransㅤㅤgay }}$ <br>
 ${\textsf{\color{#52B0C7} heㅤㅤtheyㅤㅤit }}$ <br>
 ${\textsf{\color{#52B0C7} bmfㅤㅤc+hㅤㅤw2i/int }}$
